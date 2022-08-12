@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Enriqueoliva32
 - 👀 I’m interested in ... everything 
-- 🌱 I’m currently learning ... hacking
-- 💞️ I’m looking to collaborate on ..hackers.
+- 🌱 I’m currently learning ... everything I want to learn
+- 💞️ I’m looking to collaborate on ..eveybody 
 - 📫 How to reach me ...olivaenrique31@gmail.com 
 
 <!---
